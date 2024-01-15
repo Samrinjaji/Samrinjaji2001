@@ -1,1 +1,3 @@
-# Samrinjaji2001
+- Hi I'm Samrin Jaji 👋
+
+  About me  🧑
